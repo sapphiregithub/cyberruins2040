@@ -1,21 +1,28 @@
-————————————————————————
-P站作品·《赛博废土2040——AI推演下日本的终局》·连载中
-https://www.pixiv.net/novel/series/16539586
+更新中
 
-Ao3作品
-https://archiveofourown.org/series/6621186
-
-Ao3主页
-https://archiveofourown.org/users/sapphire_ao3/profile
-
-P站主页
-https://www.pixiv.net/users/7333999
-
-Bluesky主页
+Linktreeを見てください
+————————————————————————————————
+Bluesky
 https://bsky.app/profile/sapphirebs.bsky.social
 
-Bangumi主页
+Pixiv
+https://www.pixiv.net/users/7333999
+
+Ao3
+https://archiveofourown.org/users/sapphire_ao3/profile
+
+github
+https://github.com/sapphiregithub/cyberruins2040
+
+Bangumi
 https://chii.in/user/nanodis
+
+星空文庫
+https://slib.net/a/27199/
+
+小説家になろう
+https://mypage.syosetu.com/3150554/
+————————————————————————————————
 ——————————————————————————————
 标题：《赛博废土2040——AI推演下日本的终局》
 
